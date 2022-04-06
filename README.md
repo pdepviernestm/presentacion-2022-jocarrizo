@@ -4,7 +4,6 @@
 ## **_Joaquin Santiago Carrizo_** 
 
 - **Legajo: 2034785**
-- **2° año Ing. de Sistemas**
 
 ## **_Datos Personales_**
 - Vivo en San Miguel 
