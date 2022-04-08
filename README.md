@@ -11,8 +11,8 @@
 - Suelo jugar videojuegos en mis tiempos libres como Valorant, FIFA, League of Legends
 - Tambien usualmente miro peliculas, puedo recomendar las peliculas de Quentin Tarantino que son muy buenas.
 - Mis bandas favoritas son:
-  -Arctic Monkeys
-  -The Strokes
-  -Green Day
-  -Twenty One Pilots.
+  - Arctic Monkeys
+  - The Strokes
+  - Green Day
+  - Twenty One Pilots.
 
